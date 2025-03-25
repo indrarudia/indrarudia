@@ -1,1 +1,1 @@
-Hello, I'm Indra Rudianto 👋🏻
+Hello, I'm Indra Rudianto
